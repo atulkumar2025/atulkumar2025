@@ -1,7 +1,7 @@
 ## Hi, I'm Atul Kumar👋
 
 💻Software Engineer <br/>
-🎓Gradauted from Graphic Era Hill University, Dehradun. <br/>
+🎓Graduated from Graphic Era Hill University, Dehradun. <br/>
 
 
 ## 🌐 Socials:
